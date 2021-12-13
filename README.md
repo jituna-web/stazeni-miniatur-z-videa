@@ -1,0 +1,1 @@
+# stazeni-miniatur-z-videa
